@@ -6,4 +6,10 @@
 # 
 ## I try to have fun and keep myself entertained so you'll probably see things I enjoy like anime or video games
 
-# Also please follow me on twitter @PandaOwatch 
+## Time taken to learn each effect:<br> Animated Social Panel - 2.5 hrs <br> Hover - 3hrs
+# 
+
+
+
+
+# Also please follow me on twitter @PandaOwatch. Thank you
